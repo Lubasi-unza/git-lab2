@@ -1,1 +1,1 @@
-Team lead: Lubasi Sipangule
+Team lead: Lubasi Sipangule Developer A
